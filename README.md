@@ -1,1 +1,1 @@
-
+So I am happy to maintain communication and payments with Freelancer for a while, but we use skype for our day to day chat.  I know freelancer does not allow, but my team is all on skype.  Is this ok with you?  My skype name is jackbradford.
