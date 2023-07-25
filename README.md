@@ -1,1 +1,1 @@
-
+If you want we can work direct.  My team we all use Skype. My skype name is Jackbradford.  If you want to stay working in freelancer that is fine too.  Please confirm when you read this so I can delete this.  Thanks,
